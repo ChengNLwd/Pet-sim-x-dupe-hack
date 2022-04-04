@@ -1,1 +1,1 @@
-# Pet-sim-x-dupe-hack
+Make sure to attach ur executor and execute 
